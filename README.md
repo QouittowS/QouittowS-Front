@@ -1,0 +1,7 @@
+# QouittowS-Front
+NOt A cos 
+OR COS
+CAUSE COS
+CARES OF SELF
+CARES OF SUBSITIVE
+COarse of SUBSTAinatal
